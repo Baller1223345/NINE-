@@ -1,2 +1,2 @@
 # NINE-
-Nine bypass scriptz
+Nine bypass scriptz, please do not dump/decompile plssssssssss
